@@ -49,4 +49,10 @@
 
 1. 负负得正影业
 2. [Betavee](http://www.betavee.com/), 移动设备能源解决方案
-3. [ZYInternational](https://zyintltrade.com/), 个人防护产品
+3. 科技前沿, AI 技术行业开拓者
+4. [ZYInternational](https://zyintltrade.com/), 个人防护产品
+
+## 联系我们
+
+商务合作: 欢迎留言联系我们，来分享你的产品与服务。
+成为学员: [AlumAdvisor](https://alumadvisors.com/)
