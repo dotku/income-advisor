@@ -54,5 +54,5 @@
 
 ## 联系我们
 
-商务合作: 欢迎留言联系我们，来分享你的产品与服务。
-成为学员: [AlumAdvisor](https://alumadvisors.com/)
+* 商务合作: 欢迎留言联系我们，来分享你的产品与服务。
+* 成为学员: [AlumAdvisor](https://alumadvisors.com/)
