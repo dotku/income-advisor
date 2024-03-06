@@ -44,3 +44,9 @@
 ## 优势
 
 我们拥有全球上千家教育机构资源，与行业数百家企业各行各业的精英，领导人有紧密联系，可以为您匹配相应的资源。
+
+## 成功案例
+
+1. 负负得正影业
+2. [Betavee](http://www.betavee.com/), 移动设备能源解决方案
+3. [ZYInternational](https://zyintltrade.com/), 个人防护产品
